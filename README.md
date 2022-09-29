@@ -7,8 +7,8 @@
 
 关于劳动法的几个链接
 ------- 
-1、劳动法：http://www.gov.cn/banshi/2005-05/25/content_905.htm<br> 
-2、劳动合同法：http://www.gov.cn/flfg/2007-06/29/content_669394.htm<br> 
-3、民事诉讼法：http://www.npc.gov.cn/zgrdw/npc/xinwen/2017-06/29/content_2024892.htm<br> 
+1、[劳动法:怎么劳动！](http://www.gov.cn/banshi/2005-05/25/content_905.htm)<br> 
+2、[劳动合同法:违约怎么赔钱](http://www.gov.cn/flfg/2007-06/29/content_669394.htm)<br> 
+3、[民事诉讼法：怎么讲笑话，到哪儿讲笑话](http://www.npc.gov.cn/zgrdw/npc/xinwen/2017-06/29/content_2024892.htm)<br> 
 4、有关解释：<br> 
 [最高人民法院关于审理劳动争议案件适用法律问题的解释（一）](https://www.court.gov.cn/fabu-xiangqing-282121.html)<br> 
