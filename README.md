@@ -123,14 +123,13 @@ x2（不用写的很专业，太专业会让人家觉得是碰瓷的，字体也
 3、[前程无忧](https://www.51job.com/)<br>
 4、[BOSS直聘](https://www.zhipin.com/)<br>
 5、[猎聘](https://www.liepin.com/)<br>
-6、[BOSS直聘](https://www.zhipin.com/)<br>
+6、[百姓网](https://app.mokahr.com/)<br>
 7、[拉勾网](https://www.zhipin.com/)<br>
 8、[智联](https://www.zhaopin.com/?)<br>
 9、[应届生求职网](http://www.yingjiesheng.com/)<br>
-
-
+10、各地政府的人力资源中心（大多数都是正规企业或受保护的企业，难度最高，也有可能真的找到适合的工作）<br>
+11、社区宣传栏上的小广告 <br>
 <br>
-
 #### 寻找企业的标准。<br>
 <br>
 <br>
