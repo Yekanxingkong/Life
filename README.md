@@ -118,6 +118,17 @@ x2（不用写的很专业，太专业会让人家觉得是碰瓷的，字体也
 #### 寻找合适的企业、可以接受最低工资的城市。（别找那种传销、破产的，他妈钱没赚到还搞一身骚。入职第三天，一群JC冲进大门，双手抱头蹲下）<br>
 准备工具：录音笔（千万别用手机，音质不在一个水平线，不要搞笑，认真点赚钱的），一个云盘，一个微型摄像头同步上传视频的，一个一键报警装置（救命的）。<br>
 在那儿找企业：<br>
+1、[58同城](https://wx.58.com/)<br>
+2、[赶集网](https://bj.ganji.com/)<br>
+3、[前程无忧](https://www.51job.com/)<br>
+4、[BOSS直聘](https://www.zhipin.com/)<br>
+5、[猎聘](https://www.liepin.com/)<br>
+6、[BOSS直聘](https://www.zhipin.com/)<br>
+7、[拉勾网](https://www.zhipin.com/)<br>
+8、[智联](https://www.zhaopin.com/?)<br>
+9、[应届生求职网](http://www.yingjiesheng.com/)<br>
+
+
 <br>
 
 #### 寻找企业的标准。<br>
